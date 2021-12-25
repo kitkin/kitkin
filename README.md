@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kitkin
+- 👀 I’m interested in gamefi (gaming NFTs) market
+- 🌱 I’m currently learning how to be a better leader
+- 💞️ I’m looking to collaborate on learning players values
+- 📫 Drop me a line: t.me/kitkin
